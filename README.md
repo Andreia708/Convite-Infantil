@@ -34,7 +34,7 @@ Confirme sua presença até [ 11/12/2024] para garantir seu lugar nessa jornada!
 
 Vagas Limitadas ❣️
 
-Link do Convite REC ROOM convite
+Link do Convite [REC ROOM convite](https://www.canva.com/design/DAGYola9_v8/OW_B3OS0Z2DCwZOLwjHLfw/edit?utm_content=DAGYola9_v8&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
 💭 Reflexão (Opcional)
 
